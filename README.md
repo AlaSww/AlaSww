@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/berserk-my-honest-reaction-schnoz-gif-27191394"  />
+<img align="right" height="150" src="https://tenor.com/view/berserk-guts-gif-17406908363413514455"  />
 
 ###
 

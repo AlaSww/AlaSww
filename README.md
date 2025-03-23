@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/berserk-guts-gif-17406908363413514455"  />
+<img align="right" height="150" src="https://media1.tenor.com/m/8ZHC7kcJ6NcAAAAd/berserk-guts.gif"  />
 
 ###
 
